@@ -1,3 +1,3 @@
 # Fogalmam sincs... tehát nemtom... 
-                              - Motmen
+                              - Motmen |$|
 
